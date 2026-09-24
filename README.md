@@ -212,4 +212,4 @@ Tomb Raider Anniversary is available as a complete free version with all feature
 Don't miss out on the adventure! Download Tomb Raider Anniversary today and experience the thrill of exploration and discovery with Lara Croft.
 
 ---
-**Last updated:** 2026-09-24 10:49:58 UTC
+**Last updated:** 2026-09-24 15:37:39 UTC
